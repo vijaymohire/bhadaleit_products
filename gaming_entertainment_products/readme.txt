@@ -1,0 +1,1 @@
+GAMING & ENTERTAINMENT PRODUCTS related to 2D, 3D graphics, quantum and AI based low energy hi computation for longer play of movies, and games that are more relaistic and dont slow down due to large data or data read/write times 
