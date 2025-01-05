@@ -1,0 +1,1 @@
+LAW PRODUCTS for the legal industry that help better and peaceful, non-biased judgments, bringing right justice and punsihments, use of Expert AI Lawyer systems that can look at rule based, fuzzy and neural network human like thinking using ReAct and other patterns  
