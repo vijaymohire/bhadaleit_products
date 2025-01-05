@@ -1,0 +1,1 @@
+GREEN ENVIRONMENT PRODUCTS folder is for all the carbon reduction programs, bio friendly projects, and for datacenter energy conservation, optimization and reduction using alternative technologies like the quantum computing and DNA computing   
