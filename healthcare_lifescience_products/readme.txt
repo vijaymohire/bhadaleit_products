@@ -1,0 +1,1 @@
+HEALTHCARE / LIFESCIENCE PRODUCTS related files that allow for efficient diagnosis of diseases, recommendations, Expert system, compliances like HIPPA, SoX, HL7 and various lab quality standards that allow for quality clinical trails and production   
