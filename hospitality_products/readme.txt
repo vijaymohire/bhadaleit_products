@@ -1,0 +1,1 @@
+HOSPITALITY PRODUCTS related to hotel industry supply chain, degradable items storage and movement, quality assurance, intelligent booking, reservations, real time ticket resolutions, synchronisation of real time data for best UX, food and hygeine, disease monitoring, control and isolation for better management of pandemics etc 
