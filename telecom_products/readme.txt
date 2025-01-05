@@ -1,0 +1,1 @@
+TELECOM PRODUCT for 5G, 6G, Classical quantum hybrid systems, newer protocols, Smart metering, automation of change request for various packages and activation functions, RAN design, QoS, redundancy, antenna design, DTH boxes, Spectrum usage, instrumentation, telemetry, SCADA, Digital meters, Apps etc, AI based load balancers, threat detections, spam detection, Compliances etc 
