@@ -1,0 +1,1 @@
+DATA CENTER-COMPUTING PRODUCTS that allow for modernizing the platforms, reducing the digital footprint and increase the capability. Design for mobile racks, station, wireless remote cloud units, nano systems, highly secure zones for federal compliances, increased safety, use of lesser energy, handle hybrid workloads related to quantum and bilogy etc 
