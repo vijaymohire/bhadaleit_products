@@ -1,0 +1,1 @@
+RETAIL PRODUCTS for Smart retail shopping, Online expereince, Virtual trial rooms, virtual mirrors, 2D, 3D match making, special occasions retail packages, family packages, annual packages, SCM, inventory management, stock replinishment, downstream business management   
