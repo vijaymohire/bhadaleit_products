@@ -1,0 +1,1 @@
+DRESS PRODUCTS and various types of body related energy harnessers, low energy quantum devices, intelligent AI sensors, devices and artificial body covers and dynamic adaption for various threats and situations like cold, hot, physical abuse and attacks etc 
