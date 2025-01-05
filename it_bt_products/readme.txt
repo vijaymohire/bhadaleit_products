@@ -1,0 +1,1 @@
+IT-BT PRODUCTS for the IT Industry needs like IT Projects design, development , agility, OT, Deployments,  Customer care , Help desk, Voice, Non-voice support, AI based Customer Care centers, intelligent routing and management of ticketing systems, intelligent AI Agents with RAG for quick resolutions etc 
